@@ -1,0 +1,1 @@
+# Plataforma-SecuraPy-SIEM-como-Plataforma-de-Seguran-a-GS-
